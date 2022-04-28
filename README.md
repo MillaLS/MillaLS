@@ -1,16 +1,15 @@
-### Oi galerinha 👋
+### Oi galerinha, sem bem vindos!! 👋
 
+## Sobre mim
 
-**MillaLS/MillaLS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Camilla Leal Severo, sou uma estudante do ensino médio da UFSM, mais precisamente do Colégio Técnico Industrial de Santa Maria; aonde estou cursando o primeiro ano no curso intergrado Técnico de Informática para a Internet.
+Antes do CTISM, eu estudava no Instituto de Educação Olavo Bilac. Fiz meu fundamental todo lá, ou seja, eu estudei a minha vida inteira lá e o CTISM é a minha primeira experiência de troca de escola.
 
-Here are some ideas to get you started:
+## Meus hobbies 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ... ensino médio, técnico em informática, CTISM
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...  ela/dela
-- ⚡ Fun fact: ... 
--->
+* Escutar música
+* Fotografar tudo, principalmente paisagens relacionadas ao céu
+* Tocar teclado
+* Assistir animes
+* Jogar com meus amigos
+* Ler
