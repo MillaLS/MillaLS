@@ -1,20 +1,22 @@
 
-                                          The 69 eyes - Gothic Girl
+                                    The 69 eyes - Gothic Girl
 
-                                           █ ▄ █ ▄ ▄ █ ▄ █ ▄ █ ▄ █
+                                     █ ▄ █ ▄ ▄ █ ▄ █ ▄ █ ▄ █
 
-                                          2:58 ━━━━●─────────  4:22
+                                    2:58 ━━━━●─────────  4:22
 
-                                       ⇆       ◁ㅤㅤ❚❚ㅤㅤ▷       ↻
+                                   ⇆       ◁ㅤㅤ❚❚ㅤㅤ▷       ↻
 
 
 ##                                                             🦇🖤 Olá! Seja muito bem vindo à página pessoal mais vampiresca do GitHub! 🖤🦇
+
+![](https://c.tenor.com/2ON7C2GDDpEAAAAS/vampire.gif)
 
 ### ↳ :🌙: ₊˚ . ⊰      Sobre Mim
 
 Meu nome é Camilla Leal Severo, tenho 15 anos e sou gaúcha natural de Santa Maria. Sou uma estudante do ensino médio da **UFSM**, mais precisamente do **Colégio Técnico Industrial de Santa Maria**; aonde estou cursando o primeiro ano no curso integrado Técnico de Informática para a Internet.
 
-### ↳ :🌙: ₊˚ . ⊰     Meus Hobbies
+### ↳ :🌙: ₊˚ . ⊰ Meus Hobbies
 
 * 🎧 〉 Escutar música;
 * 📷 〉 Fotografar paisagens;
@@ -24,6 +26,7 @@ Meu nome é Camilla Leal Severo, tenho 15 anos e sou gaúcha natural de Santa Ma
 * 📚 〉 Ler;
 * 🏐 〉 Jogar Vôlei;
 * ✏ 〉 Escrever textos.
+      
       Entre outros... 
 
 
