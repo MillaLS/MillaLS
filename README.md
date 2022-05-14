@@ -1,19 +1,31 @@
 ### Olá, seja bem vindo à minha página pessoal!! 🖤🌙
 
-## Sobre mim
+## ↳ :🪐: ₊˚ . ⊰      Sobre Mim
+                    ︶︶︶︶︶︶︶︶
 
 Meu nome é Camilla Leal Severo, tenho 15 anos e sou gaúcha natural de Santa Maria. Sou uma estudante do ensino médio da UFSM, mais precisamente do Colégio Técnico Industrial de Santa Maria; aonde estou cursando o primeiro ano no curso intergrado Técnico de Informática para a Internet.
 
-## Meus hobbies 
+## ↳ :🪐: ₊˚ . ⊰     Meus Hobbies
+                    ︶︶︶︶︶︶︶︶ 
 
-* Escutar música;
-* Fotografar paisagens;
-* Tocar teclado;
-* Assistir animes;
-* Jogar com meus amigos;
-* Ler;
-* Jogar vôlei;
-* Escrever textos.
+* 🎧 〉 Escutar música;
+* 📷 〉 Fotografar paisagens;
+* 🎹 〉 Tocar teclado;
+* 🍄 〉 Assistir animes;
+* 🎮 〉 Jogar com meus amigos;
+* 📚 〉 Ler;
+* 🏐 〉 Jogar Vôlei;
+* ✏ 〉 Escrever textos
+
+Entre outras coisas!!
+
+
+##    ↳ :🪐: ₊˚ . ⊰ Curiosidades
+                    ︶︶︶︶︶︶︶︶ 
+
+
+
+
 
 ## Como se referir a mim?
 
