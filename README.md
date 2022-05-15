@@ -1,14 +1,9 @@
 
-                                    The 69 eyes - Gothic Girl
-
-                                     █ ▄ █ ▄ ▄ █ ▄ █ ▄ █ ▄ █
-
-                                    2:58 ━━━━●─────────  4:22
-
-                                   ⇆       ◁ㅤㅤ❚❚ㅤㅤ▷       ↻
-
-
 ##                                                             🦇🖤 Olá! Seja muito bem vindo à página pessoal mais vampiresca do GitHub! 🖤🦇
+
+
+![](https://gifer.com/1PT2)
+
 
 ### ↳ :🌙: ₊˚ . ⊰      Sobre Mim
 
