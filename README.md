@@ -20,6 +20,8 @@ Meu nome é Camilla Leal Severo, tenho 15 anos e sou gaúcha natural de Santa Ma
 * 🏐 〉 Jogar Vôlei;
 * ✏ 〉 Escrever textos.
 
+![](https://64.media.tumblr.com/4bc233217a954b3ca335f4639e7c69c2/6ec6659a6688a535-29/s540x810/26b7829548717cdbde131fbea13c1c99a7dc343f.jpg)
+
 ### ↳ :🌙: ₊˚ . ⊰ Curiosidades
 
 * Faço aniversário dia 12/09;
