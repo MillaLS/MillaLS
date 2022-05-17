@@ -49,3 +49,5 @@ Meu nome é Camilla Leal Severo, tenho 15 anos e sou gaúcha natural de Santa Ma
 Antes do CTISM, eu nunca havia mexido com programação e nem nada do gênero, o máximo que eu fazia em um computador era jogar alguns joguinhos e fazer trabalhos da escola. Apesar de tudo isso estar sendo muito novo e até um pouco complicado para mim; eu estou gostando **MUITO** de informática, então posso dizer com tranquilidade que não me arrependo de ter escolhido este curso, tanto que depois de entrar no colégio uma das minhas opções para ingressar na faculdade futuramente agora é o curso de Ciência da Computação. _**INFO MAIOR E MELHOR!**_
 
 > "Those who dream by day are cognizant of many things which escape those who dream only by night". - Edgar Allan Poe
+
+![](https://i.pinimg.com/originals/54/8e/9f/548e9f0419a912db000bd18b03f3495d.gif)
