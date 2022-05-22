@@ -37,7 +37,7 @@ Meu nome é Camilla Leal Severo, tenho 15 anos e sou gaúcha natural de Santa Ma
 * Eu gosto muito da área de astronomia, apesar de não me dar muito bem com exatas; 
 * Eu sou fascinada pelo universo e pelos seus mistérios;
 * Amo observar o céu e fotografar a lua! Uma meta minha, é ter um telescópio para obter melhores observações;
-* Já me falaram que antes de me conhecerem costumamávam achar que eu era fria por conta do meu estilo, mas eu sou totalmente o contrário; extremamente carinhosa e empática! Afinal, as aparências enganam, hehe! :)
+* Já me falaram que antes de me conhecerem costumávam achar que eu era fria por conta do meu estilo, mas eu sou totalmente o contrário; extremamente carinhosa e empática! Afinal, as aparências enganam, hehe! :)
 
 ### ↳ :🌙: ₊˚ . ⊰ Onde me encontrar?
 
